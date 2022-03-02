@@ -2,7 +2,10 @@
 
 
 ### ¡Hola!, ¿Cómo estas?, seas bienvenido a mi perfil!
-
+ 
+ ✨ Estudiante de la Preparatoria Federal Lazaro cardenas
+ ✨ 4to semestre de preparatoria
+ ✨ contactarme a a200771@lazarocardenas.edu.mx
 
 Este es mi horario, no estaré disponible dentro de estas horas
 
